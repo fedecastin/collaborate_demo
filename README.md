@@ -1,7 +1,4 @@
-# collaborate_demo
+AHFGHkljagkl nlk
 
-
-42: Answer to the Ultimate Question of Life, the Universe, and Everything
-
-This is a collaborative project :)
-
+f lks jms. ,;kg
+ k;lg;dfgh;jkg wpbbbbbbbbbbbbbbbsjlkgiw
